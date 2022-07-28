@@ -1,16 +1,24 @@
-### Hi there 👋
+Olá, sou Maria Karolina.
 
-<!--
-**Maria-Karolina/Maria-Karolina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Numa loucura danada junto com uma pitada de disciplina me aventuro nesse universo da tecnologia.
+Uma facilidade e um gosto de “resolver problemas” entendi que estou no universo certo.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Loucura total! ❤
+
+Sobre mim:
+
+🍀 Em transição de carreira. Atualmente sou Analista Financeira há 8 anos.
+☕ Gosto do cheiro do café.
+🏖 Moro na praia mas quase não vou.
+🎵 Gosto de rock/folk/soul dos anos 80 e 90.
+
+Pronomes: Dela/Ela
+
+Contato:
+
+(13) 98131-6048☎    
+ 
+https://www.linkedin.com/in/maria-karolina-teixeira-de-freitas-891282161/
+
+
