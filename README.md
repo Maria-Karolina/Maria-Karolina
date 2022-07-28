@@ -17,8 +17,8 @@ Pronomes: Dela/Ela
 
 Contato:
 
-(13) 98131-6048☎    
- 
-https://www.linkedin.com/in/maria-karolina-teixeira-de-freitas-891282161/
+(13) 98131-6048☎  
+
+ www.linkedin.com/in/maria-karolina-freitas
 
 
